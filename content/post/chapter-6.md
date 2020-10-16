@@ -24,9 +24,7 @@ in groups around the pillars, women, old men, or children, who had had
 enough of the uproar and tumult. Some scholars were still perched astride
 of the window-sills, engaged in gazing into the Place.
 
-“Well,” thought Gringoire, “here are still as many as are required to hear
-the end of my mystery. They are few in number, but it is a choice
-audience, a lettered audience.”
+“Well,” thought Gringoire, “here are still as many as are required to hear the end of my mystery. They are few in number, but it is a choice audience, a lettered audience.”s
 
 An instant later, a symphony which had been intended to produce the
 greatest effect on the arrival of the Virgin, was lacking. Gringoire
